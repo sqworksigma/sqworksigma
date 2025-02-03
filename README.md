@@ -1,16 +1,21 @@
-## Hi there 👋
 
-<!--
-**sqworksigma/sqworksigma** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![049ed157835bc20500116c93799f5878](https://github.com/user-attachments/assets/cb810139-0e53-4b5c-929a-eeb73a987b0e)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ I’m currently working on random stuff i find fun so ya
+ 
+ 
+ 
+ How to reach me: no
+ 
+ 
+ 
+  Pronouns: she/her
+ 
+ 
+ 
+ Fun fact: im sigma :3 
+
+
+
